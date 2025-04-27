@@ -7,6 +7,6 @@ TFT Unlock Tool is an Android repair software that helps fix various phone issue
 
 
 
-## [🚀💹🎉TFT Unlock Tool For PC](https://tinyurl.com/5n8xttf6)
+## [🚀💹🎉TFT Unlock Tool For PC](https://tinyurl.com/ycx9cmnc)
 
-## [🚀💹🎉TFT Unlock Tool For Windows ](https://tinyurl.com/5n8xttf6)
+## [🚀💹🎉TFT Unlock Tool For Windows ](https://tinyurl.com/ycx9cmnc)
